@@ -4,11 +4,14 @@
 
 $tKINGY can also be used as a means of exchange within the project's ecosystem where it was issued. For example, it can be used to purchase goods and services available within the project or to participate in various games or contests held on the platform. Thus, the $tKINGY token provides participants with a convenient and secure way to interact within the ecosystem and can incentivize active participation in the project.
 
-▪️Support @tkingysupportbot
 
 ▫️Channel https://t.me/tKingyToken
+
 ▫️Twitter (X) https://twitter.com/tKingyToken
+
 ▫️Zealy https://zealy.io/c/tkingy/
+
 ▫️QuestN https://app.questn.com/tKINGY
+
 
 ❌WEBSITE COMING SOON❌
